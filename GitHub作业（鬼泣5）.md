@@ -20,3 +20,4 @@
 <img src="C:\Users\宋嘉诚\Pictures\Saved Pictures\1e30e924b899a9014c086330ead91d7b02087bf45f2a.jpg" style="zoom:25%;" />
 
 2019年12月，《鬼泣5》获得TGA 2019颁奖典礼最佳动作游戏奖。可见其游戏含金量之高。
+![0df431adcbef76094b36c8e8d991b4cc7cd98d10303d](https://user-images.githubusercontent.com/119742844/208280043-f2a66e5b-7626-4a2b-a988-afb4fc57e7a0.jpg)
